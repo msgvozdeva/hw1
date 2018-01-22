@@ -12,6 +12,8 @@
  * >«Success is the child of audacity». (Benjamin Disraeli)
  * >空穴来风未必无因- нет дыма без огня
  * >Savoir dissimuler est le savoir des rois. — Умение скрывать есть умением королей.
+ # Если требуется какая-нибудь помощь в изучении, всегда есть куча полезных роликов в Youtube.
+ [![ALT-ТЕКСТ ИЗОБРАЖЕНИЯ](https://www.youtube.com/watch?v=_G9WQDbyeno)
 
 # До поступления в Высшую Школу Экономики, я профессионально занималась фигурным катанием и получила ~второй юношеский разряд~,  ***третий***! [Щёлкните эту ссылку][link1] для подробной информации!
 [link1]: http://frs24.ru/st/razryad-normativ-figurnoe-katanie/ "Круто!"
@@ -34,5 +36,5 @@
 # Но это не так страшно. Главное- это та ___новая информация, которую ты получаешь___. 
 
 # *Thank you for your attention*
-# __Wishing you luck and happiness. __
+# __Wishing you luck and happiness.__
 ![alt text](http://img0.joyreactor.cc/pics/post/%D1%82%D0%BE%D0%BC-%D0%B8-%D0%B4%D0%B6%D0%B5%D1%80%D1%80%D0%B8-%D0%BC%D1%83%D0%BB%D1%8C%D1%82%D0%B8%D0%BA%D0%B8-%D0%BE%D0%BC%D0%BD%D0%BE%D0%BC%D0%BD%D0%BE%D0%BC-%D0%B3%D0%B8%D1%84%D0%BA%D0%B8-657198.gif)
